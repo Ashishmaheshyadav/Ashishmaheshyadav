@@ -2,7 +2,7 @@
 - 👀 I’m interested in web devlopment
 - 🌱 I’m currently learning react
 - 💞️ I’m looking to collaborate on google,microsoft
-- 📫 How to reach me 9723707446
+- 📫 How to reach me 9265548256
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
